@@ -1,0 +1,78 @@
+# Parabola – STAY GOLD
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Hey, Baby you can take some dream night
+初っ端から P.F.P, punch out!
+Leading this crew, we're taking flight
+New era started
+Everything I want, I'm on the track
+M.Z.K 証明してみせる愛
+Ya, No harmony, no life (life life)
+From U.S "ZOE"
+ハイスピードで駆け巡る My style
+Watch me soar, watch me climb
+No limits on me, I'm born to fly
+響かす My verse
+Hit that high note, got my voice in the skies
+Z.O.C, I'm a queen of the zone, right?
+Talkin' to the world, with my dawgs
+Sing out! Parabola!
+We rise, no stopping now
+追いつけないその向こうへ
+We shine, let's turn it up.
+刻みつける 808 sound
+Baby, ステージ揺らす衝動
+Check it! Parabola
+Baby, 目指すはそう、頂上
+So, just let it out
+Da-li-da-ra, これが最高峰
+Da-li-da-ra, 呼び覚ます本能
+Da-li-da-ra, 超えてくその想像
+Da-li-da-ra, we sing "STAY GOLD"
+Yeah, I step in
+流れるままに乗れば Okay
+No fear, 惹きつける周りの目
+Kick out the worries, and roll on
+Que Sera, Sera 楽しんでく Style
+One, Two, Three, の合図で
+声を重ねれば Sounds good
+Yeah, 聞こえるでしょ?
+魂震わすこの声が
+Yeah, all you guys 聞こえるでしょ?
+Feel the vibes, let it take control
+どこまでも飛べるさ
+いつまでも私たちはスター
+まだ見たことのないステージ
+刻みこむ新しいページ
+We rise, no stopping now
+追いつけないその向こうへ
+We shine, let's turn it up.
+Stand with us, scream and shout!
+Baby, ステージ揺らす衝動
+Check it! Parabola
+Baby, 目指すはそう、頂上
+KARIN, let's carry on
+No doubt 魅了する Chorus
+All eyes 世界中 Focus
+REIRA is coming, chase me
+愛してよ 夢中に
+Pullin' strings, wow, like a puppet show.
+I make the buzz, cash on deck.
+Rewrite the rules, ey, you know?
+Hands up!
+We rise, No stopping now…
+We rise, no stopping now
+追いつけないその向こうへ
+We shine, Let's turn it up.
+刻みつける 808 sound
+Baby, ステージ揺らす衝動
+Check it! Parabola
+Baby, 目指すはそう、頂上
+So, just let it out
+Da-li-da-ra, これが最高峰
+Da-li-da-ra, 呼び覚ます本能
+Da-li-da-ra, 超えてくその想像
+Da-li-da-ra, we sing "STAY GOLD"
+```
